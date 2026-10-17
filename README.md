@@ -1,1 +1,1 @@
-Hi There! Welcome to my GitHub 
+Hi buddie! welcome to my github
