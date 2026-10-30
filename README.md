@@ -1,3 +1,1 @@
-Hii 👋
-welcome here
-to my github
+get lost mf
